@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "4EVER U&I",
+  "base_artist": "SOLDIER-K",
+  "createdAt": "2025-12-10T07:36:32.671099Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "4EVER U&I (feat. Rion)",
+      "artist": "SOLDIER-K",
+      "has_synced": false,
+      "path": "select/pl_01_4EVER_U&I_(feat._Rion)_SOLDIER-K.txt"
+    }
+  ]
+}
