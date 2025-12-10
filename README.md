@@ -1,0 +1,85 @@
+# SOLDIER-K – 4EVER U&I
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+My Babe love you so much
+My Babe love you so much
+君のその心に触れた時から
+I need nothing more than you
+Coz this is my happiness
+時が経ってもU & I
+さぁ乗りな俺の上に
+I luv U Baby
+邪魔は居ねぇぜ
+今日は2人だけだぜ
+嫌な事も時間も全部忘れて
+このままAll Night Long
+2人重なろう
+全てが新鮮サ 俺の目は真剣だ
+誰でもって訳じゃない
+お前だけを口説きたい
+扱いはお姫様 だで俺が王子様
+馬車は無くても
+連れてけるぜもっと深いとこ
+エスコートするぜ俺に任せろ
+BGMはR&BでMellow
+繋ぐ手と手を合わせる目と目を
+お前にメロメロ理性じゃねぇ本能
+明日なんて生きてる保証もない
+だってそうだろ？
+現在は今しかないだろ
+確かめ合うのに
+言葉なんて必要ない
+Forever Forever U & Iこれが愛
+My Babe love you so much
+My Babe love you so much
+君のその心に触れた時から
+I need nothing more than you
+Coz this is my happiness
+時が経ってもU & I
+眠れない夜も越えていける
+きっと2人なら
+何も怖くないよBaby
+ギュっと抱きしめるから
+離さない4EVER Ui
+ずっとこのまま
+どうか時を止めてくれよ
+お願いだ神様
+月明かりだけが2人を照らすBet
+今夜俺とお前がPlayer
+Spot lightの下でDance
+プライスタグなんて無いぜ愛に
+だってこれはReal Luv
+Pricelessサ愛してるを
+俺が口にしても安かない
+生きる意味もないょ
+お前無しのLife
+247 All愛 他に必要ない
+過去の傷は俺が癒やすPain
+すぐにやむサ激しいRainも
+Every day Every night
+飽きる程Stay
+この身も心だって全部そう
+All for you
+俺にNoは無ぇYesと言う
+これもSong for you
+何かに もう怯えなくていいぜ
+俺が居るから
+Thugにだって戻ってやる
+お前を守る為なら
+My Babe love you so much
+My Babe  love you so much
+君のその心に触れた時から
+I need nothing more than you
+Coz this is my happiness
+時が経ってもU & I
+All day all night forever you & i
+Luv you Babe
+My Babe love you so much
+My Babe love you so much
+君のその心に触れた時から
+I need nothing more than you
+Coz this is my happiness
+時が経ってもU & I
+```
